@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new stuff
 - 🌱 I’m currently learning new stuff
 - 💞️ I’m looking to collaborate on - Just joking
-- 📫 How to reach me 
+- 📫 How to reach me - Mail me at 156083220+knoff6@users.noreply.github.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: History repeats itself
 
